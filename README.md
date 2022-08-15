@@ -1,0 +1,1 @@
+Jocelyn Harley is an expert in digital marketing, with a hands-on experience in both B2B and B2C businesses. Her expertise includes SEO, paid advertising (Facebook/Instagram/Google Adwords), setting up eCommerce stores/websites with Shopify/WordPress, affiliate marketing and much more. She helped many clients to grow their business.
